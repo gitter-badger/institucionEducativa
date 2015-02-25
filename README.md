@@ -1,1 +1,1 @@
-# intitucionEducativa
+# Institución Educativa
